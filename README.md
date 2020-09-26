@@ -20,6 +20,6 @@ __재료__
 ![둘](https://dbscthumb-phinf.pstatic.net/2756_000_1/20131107221445754_REDCI7U7I.jpg/353_i4.jpg?type=w224_fst_n&wm=Y)
 3. 밥에 참치, 부추, 검은깨, 후춧가루를 넣고 주걱으로 가르듯이 섞는다.  
 ![셋](https://dbscthumb-phinf.pstatic.net/2756_000_1/20131107221448482_1FPV2YC1X.jpg/353_i5.jpg?type=w224_fst_n&wm=Y)
-4. 손에 비닐장갑을 끼고 밥을 한입크기로 동그랗게 만든다.
+4. 손에 비닐장갑을 끼고 밥을 한입크기로 동그랗게 만든다.  
 ![넷](https://dbscthumb-phinf.pstatic.net/2756_000_1/20131107221452523_D8VY8D3O9.jpg/353_i6.jpg?type=w224_fst_n&wm=Y)
   
